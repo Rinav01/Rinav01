@@ -1,5 +1,5 @@
 # 💫 About Me:
-B.Tech 3rd Year<br>Web/Mobile Application Developer<br>AI/ML Enthusiast<br>
+B.Tech 4th Year<br>Web/Mobile Application Developer<br>AI/ML Enthusiast<br>
 
 
 ## 🌐 Socials:
